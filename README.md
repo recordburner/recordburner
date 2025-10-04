@@ -1,3 +1,2 @@
 <img src="https://media1.tenor.com/m/Dio241d3tgYAAAAC/burner-object-show-osc.gif">
-im really dry (sorry) but i do love talking to people so feel free to int. will probably open up if u ask me abt my interests.
-<br>usually not paying much attention might be offtab or on my phone or smth.
+i do not like all you chronically online pt players i find u annoying. i dont play that much i mostly just make skins but if u see me say hi im always happy to talk to someone probably. i can be dry tho sorryy. im very friendly and nice i swear
